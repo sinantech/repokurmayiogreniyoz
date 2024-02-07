@@ -1,0 +1,2 @@
+# repokurmayiogreniyoz
+test kismi
